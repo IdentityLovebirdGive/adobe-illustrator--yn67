@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Illustrator for macOS with smart Adobe Illustrator for macOS Action | AI upscaling + asset management, the #1 action. Includes AI upscaling and asset management for
 
 
 
